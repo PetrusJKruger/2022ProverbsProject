@@ -16,9 +16,11 @@ for giving prudence to those who are simple, knowledge and discretion to the you
 let the wise listen and add to their learning, and let the discerning get guidance - 
 
 <sup>6</sup>
-for understand proverbs and parables, thes sayings and riddles of the wise
+for understanding proverbs and parables, thes sayings and riddles of the wise.
 
 <sup></sup>
+
+
 
 <sup></sup>
 

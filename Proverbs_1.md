@@ -18,11 +18,21 @@ let the wise listen and add to their learning, and let the discerning get guidan
 <sup>6</sup>
 for understanding proverbs and parables, the sayings and riddles of the wise.
 
-<sup></sup>
+<sup>7</sup>
+The fear of the LORD is the beginning of knowledge, but fools despise wisdom and instruction. 
+
+<sup>8</sup>
+Listen, my son, to your father's instruction and do not forsake your mother's teaching.
+
+<sup>9</sup>
+They are a garland to grace your head and a chain to adorn your neck.
+
+<sup>10</sup>
+My son, if sinful men entice you, do not give in to them.
+
+<sup>11</sup>
 
 
-
-<sup></sup>
 
 <sup></sup>
 

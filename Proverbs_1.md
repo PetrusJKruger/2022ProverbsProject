@@ -1,7 +1,7 @@
 ## Proverbs 1: 1-33
 
 <sup>1</sup>
-The proverbs of Solomon, son of David, king of Israel:
+The proverbs of Solomon, son of David, king of Israel
 
 <sup>2</sup>
 for gaining wisdom and instruction, for understanding words of insight;
@@ -31,22 +31,40 @@ They are a garland to grace your head and a chain to adorn your neck.
 My son, if sinful men entice you, do not give in to them.
 
 <sup>11</sup>
+If they say, "Come along with us;
+let's lie in wait for innocent blood,
+let's ambush some harmless soul;
 
+<sup>12</sup>
+let's swallow them alive, like the grave,
+and whole, like those who go down to the pit;
 
+<sup>13</sup>
+we will find all sorts of valuable things 
+and fill our houses with plunder;
 
-<sup></sup>
+<sup>14</sup>
+cast lots with us,
+we will all share in the loot" - 
 
-<sup></sup>
+<sup>15</sup>
+my son, do not go along with them, 
+do not set foot on their paths;
 
-<sup></sup>
+<sup>16</sup>
+for their feet rush into evil,
+they are swift to shed blood.
 
-<sup></sup>
+<sup>17</sup>
+How useless to spread a net in full view of all the birds!
 
-<sup></sup>
+<sup>18</sup>
+These men lie in wait for their own blood;
+they ambush only themselves!
 
-<sup></sup>
-
-<sup></sup>
+<sup>19</sup>
+Such are the paths of all who go after ill-gotten gain;
+it takes away the life of those who get it.
 
 
 

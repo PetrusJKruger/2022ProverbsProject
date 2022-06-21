@@ -66,5 +66,61 @@ they ambush only themselves!
 Such are the paths of all who go after ill-gotten gain;
 it takes away the life of those who get it.
 
+<sup>20</sup>
+Out in the open wisdom calls out,
+she raises her voice in the public square;
 
+<sup>21</sup>
+on top of the wall she cries out,
+at the gates leading into the city, she makes her speech:
+
+<sup>22</sup>
+"How long will you simple ones love your simple ways?
+how long will mockers delight in mockery
+and fools hate knowledge?
+
+<sup>23</sup>
+Repent at my rebuke!
+The I will pour out my heart to you,
+I will make known to you my teachings.
+
+<sup>24</sup>
+But since you refuse to listen when I call,
+and no one pays attention when I stretch out my hand,
+
+<sup>25</sup>
+since you ignore all my advice
+and do not accept my rebuke,
+
+<sup>26</sup>
+I in turn will laugh when disaster strikes you;
+I will mock when calamity overtakes you - 
+
+<sup>27</sup>
+when calamity overtakes you like a storm, 
+when disaster washes over you like a whirlwind, 
+when distress and trouble overwhelm you. 
+
+<sup>28</sup>
+"Then they will call to me but I will not answer,
+they will look for me but will not find me, 
+
+<sup>29</sup>
+Since they hated knowledge
+and did not choose to fear the LORD.
+
+<sup>30</sup>
+Since they would not accept my advice 
+and spurned my rebuke, 
+
+<sup>31</sup>
+The will eat the fruit of their ways and be filled with the fruit of their schemes
+
+<sup>32</sup>
+For the waywardness of the simple will kill them, 
+and the complacency of fools will destrou them;
+
+<sup>33</sup>
+but whoever listens to me will live in safety
+and be at ease, without fear of harm."
 
